@@ -3,4 +3,4 @@
 
 ![48b51cc9bfbae946fef82883f6a864fe827379adr1-338-338_hq](https://github.com/user-attachments/assets/d626d383-d010-4fea-8241-0d0e77ab632a) . ᯓ.⋆♱
 
-༉‧₊˚. she’s too 𝐛𝐞𝐚𝐮𝐭𝐢𝐟𝐮𝐥 .
+༉‧₊˚. My 𝐛𝐞𝐚𝐮𝐭𝐢𝐟𝐮𝐥 Queen.
